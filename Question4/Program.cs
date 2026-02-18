@@ -1,0 +1,1 @@
+﻿constuctor hangomi soxtani object ijro meshavad.

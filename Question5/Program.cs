@@ -1,0 +1,1 @@
+﻿Encapsulation-in pinhon kardani malumot va muhofizati on meboshad.
